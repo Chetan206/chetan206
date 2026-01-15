@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am Currently pursing B  tech <br>I am 3rd year student in B.tech CSE<br>I want to be become a software Engineer<br>My name is Chetan
+I am Currently pursing B tech 3rd year student 
 
 
 ## 🌐 Socials:
