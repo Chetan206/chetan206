@@ -1,5 +1,6 @@
 # 💫 About Me:
-I am Currently pursing B tech 3rd year student 
+Fullstack developer
+
 
 
 ## 🌐 Socials:
